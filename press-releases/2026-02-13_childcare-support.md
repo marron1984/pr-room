@@ -59,7 +59,7 @@
 **株式会社AA　広報室**
 担当：力久 凌太郎
 TEL：070-9003-1984
-E-mail：pr@example.co.jp
+E-mail：aa@aska-g.com
 
 ---
 
